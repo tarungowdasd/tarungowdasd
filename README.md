@@ -1,4 +1,4 @@
-# 💫 About Me:
+# I am TARUN GOWDA
 Student at BIT
 
 
